@@ -81,4 +81,4 @@ Your future doesn’t care how school ended. It only cares how you begin again.
 
 
 
-Let me know if you'd like to begin the **next article now**!
+
